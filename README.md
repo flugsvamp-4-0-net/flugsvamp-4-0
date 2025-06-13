@@ -22,4 +22,6 @@ It is crucial to be aware of the substantial risks involved in participating in 
 
 <a href="http://cfmzeua3g46ufmry3kc57zterrnoiy3qaxfz5bhuj3zcwi5r7e4argid.onion"><img src="/gallery/close.webp" alt="image" style="max-width: 100%;"></a>  <a href="http://cfmzeua3g46ufmry3kc57zterrnoiy3qaxfz5bhuj3zcwi5r7e4argid.onion"><img src="/gallery/column.webp" alt="image" style="max-width: 100%;"></a>
 
-Update:  11.06.2025 11:06 url is back online and operational
+
+
+Update:  06/13/2025
