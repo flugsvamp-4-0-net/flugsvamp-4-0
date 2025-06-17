@@ -26,4 +26,6 @@ It is crucial to be aware of the substantial risks involved in participating in 
 
 
 
-Update: url is now responsive and functioning
+
+
+Update:  17.06.2025 05:19
