@@ -32,4 +32,6 @@ It is crucial to be aware of the substantial risks involved in participating in 
 
 
 
-Update:  23.06.2025 08:17 URL refresh
+
+
+Update:  24 June
