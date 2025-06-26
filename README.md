@@ -34,4 +34,6 @@ It is crucial to be aware of the substantial risks involved in participating in 
 
 
 
-Update:  24 June
+
+
+Update: Manifest links
