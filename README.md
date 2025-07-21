@@ -44,4 +44,6 @@ It is crucial to be aware of the substantial risks involved in participating in 
 
 
 
-Update:  07/18/2025
+
+
+Update:  21.07.2025 21:56 Library links
