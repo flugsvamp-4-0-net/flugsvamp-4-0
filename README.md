@@ -58,4 +58,6 @@ It is crucial to be aware of the substantial risks involved in participating in 
 
 
 
-Update:  12 September Link is now operational and accessible
+
+
+Update:  12 September 2025
