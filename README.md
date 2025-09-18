@@ -60,4 +60,6 @@ It is crucial to be aware of the substantial risks involved in participating in 
 
 
 
-Update:  12 September 2025
+
+
+Update:  18.09.2025 Great job team, the link is functioning properly now.
