@@ -62,4 +62,6 @@ It is crucial to be aware of the substantial risks involved in participating in 
 
 
 
-Update:  18.09.2025 Great job team, the link is functioning properly now.
+
+
+Update:  01 October 2025 url is now accessible and responsive
